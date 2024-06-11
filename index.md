@@ -1,6 +1,6 @@
-### A conversation between Ahmed Alnaouq and Cristina Mas
+**A conversation between Ahmed Alnaouq and Cristina Mas**
 
-#### Friday, 14 June, at 12:00
+**Friday, 14 June, at 12:00**
 
 **Mercè Rodoreda Auditorium**<br>
 **Ciutadella Campus**<br>
