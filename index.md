@@ -1,6 +1,4 @@
-## How the (im)mobility of people, ideas, and arms implicates us in the ongoing Nakba
-
-A conversation between Ahmed Alnaouq and Cristina Mas
+**A conversation between Ahmed Alnaouq and Cristina Mas**
 
 Friday, 14 June, at 12:00
 
